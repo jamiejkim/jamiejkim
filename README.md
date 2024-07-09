@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jamiejkim
-- 👀 I’m interested in ux designer + ux engineer positions
+- 👀 I’m interested in ux designer + ui engineer positions
 - 🐶 I'm a proud dog mom
 - 🤖 I'm exploring the Gunpla kingdom 
 - 🌱 I collect rare plants
